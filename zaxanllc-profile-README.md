@@ -43,7 +43,7 @@ Real-world UniFi VLAN segmentation project:
 
 Interested in working together? Have infrastructure needs or looking for contract support?
 
-**📧 zaxanlllc@gmail.com**
+**📧 contact@zaxanllc.com**
 
 ---
 
